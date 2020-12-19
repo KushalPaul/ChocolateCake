@@ -1,0 +1,1 @@
+flour, sugar, egg, choco powder, butter, chocolate syrup, milk and soyabean oil.

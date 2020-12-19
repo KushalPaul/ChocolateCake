@@ -1,0 +1,1 @@
+Boil the milk, now make a mixture of flour, egg and butter. After making the mixture add choco powder and chocolate syrup with it and add the boiled milk also. After adding all the ingrediants, we have to make a thick, fluffy and soft batter and then at last we have to put it in the oven. Now, our tasty chocolaty cake is ready!
